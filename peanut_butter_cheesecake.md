@@ -19,7 +19,7 @@ Für eine kleine Springform (ca. 18cm):
 - Butterkekse fein zerbröseln.
 - Butter schmelzen und mit den zerbröselten Butterkeksen vermischen.
 - Springform mit Backpapier auslegen und außen mit der restlichen Butter einfetten.
-- Buttekeksmasse in die Springform geben und mit einem Löffel zu einem flachen Boden drücken.
+- Butterkeksmasse in die Springform geben und mit einem Löffel zu einem flachen Boden drücken.
 - Frischkäse, Erdnussmuß und Zucker in eine Schüssel geben und mit einem Rührgerät zu einer glatten Masse verrühren.
 - Ei dazu geben ordentlich verrühren.
 - Käsemasse in die Springform geben und glatt streichen.
